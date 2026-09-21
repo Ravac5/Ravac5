@@ -1,4 +1,4 @@
 ### Welcome to My Profile ❄️
 
-![haruhigif])(haruhithumbsup.gif)
+![haruhigif])(/haruhithumbsup.gif)
 
